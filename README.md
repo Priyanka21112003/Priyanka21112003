@@ -96,6 +96,6 @@
 
 ## 💬 Random Thought
 
-> “I may be quiet, but that doesn’t mean I’m not planning something epic behind the scenes.”  
+> “I may be an introvert, but I can make a great impact... as long as it's behind the scenes, where all the magic happens.”  
 > — *"Quiet: The Power of Introverts in a World That Can't Stop Talking"* by Susan Cain
 
